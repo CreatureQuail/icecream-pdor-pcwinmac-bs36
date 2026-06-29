@@ -1,4 +1,4 @@
-# 
+# VIP Icecream PDF Editor preajustes para Mac OS | Principal Icecream PDF Editor preajustes para PC Windows. Con almacenamiento en la nube y procesamiento de pagos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
